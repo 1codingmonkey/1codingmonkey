@@ -1,5 +1,5 @@
 👋 Hi, I’m @1codingmonkey 💻 🐵
-- I’m interested in coding an 🍌
+- I’m interested in coding and 🍌
 
 - 📫 How to reach me ...
 
